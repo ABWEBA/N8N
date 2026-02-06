@@ -1,2 +1,0 @@
-# N8N
-N8N BY ~ ABsUPs.T.ME  // ABsUP.ORG
